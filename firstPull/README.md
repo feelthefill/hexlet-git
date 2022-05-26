@@ -92,4 +92,4 @@ Now is better than never. Although never is often better than *right* now.
 Мир!
 Here is my pullRequest
 
-Только личное участие откроет тайный смысл - зорки во
+Частота дискретизации живой музыки равна бесконечности.
